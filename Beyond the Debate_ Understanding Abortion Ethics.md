@@ -2,7 +2,7 @@
 
 **Disclaimer:** This is an educational exhibition. It is not medical or legal advice. For personal health or legal questions, consult a qualified doctor or lawyer.
 
-Digital awareness exhibition
+ Awareness Exhibition
 
 # ABORTION ETHICS
 
